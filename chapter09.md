@@ -4,7 +4,9 @@ Ten weeks back, and the phrase still came to her in the early morning quiet befo
 
 Mara understood it differently now.
 
-The notebook was a single object. It traveled with her, tucked into the inner pocket of her bag where she could feel its spine against her ribs when she walked. Forty-one pages of index numbers, section codes, date ranges, the margins of what had been removed — and now, on page forty-two, a name: Cael Marr. Thirty-one years old. A man who had watched her broadcast on a public terminal somewhere and found himself unable to stop asking questions. Category 3, persistent non-compliance. Respiratory illness. That was how the record read, if you could find the record at all, which you nearly couldn't.
+The notebook was a single object. It traveled with her, tucked into the inner pocket of her bag where she could feel its spine against her ribs when she walked. Forty-one pages of index numbers, section codes, date ranges, the margins of what had been removed.
+
+And now, on page forty-two, a name: Cael Marr. Thirty-one years old. A man who had watched her broadcast on a public terminal somewhere and found himself unable to stop asking questions. Category 3, persistent non-compliance. Respiratory illness. That was how the record read, if you could find the record at all, which you nearly couldn't.
 
 She had written his name in blue ink, very small, at the top of the page. Below it: nothing yet. She didn't know what she would write below it. She wasn't sure the notebook was the right container for Cael Marr.
 
@@ -160,7 +162,7 @@ Her mother, standing in a square. The photograph in a document that had been sup
 
 Cael Marr, thirty-one years old. His name on page forty-two.
 
-She thought about the number 74. Director Hal had said it like a concession — *seventy-four people who can't stop asking questions* — and she had understood even then that the number was not stable, that it would move. That it was moving. Davi made seventy-five, if you counted him, which she did, which she was not going to stop doing.
+She thought about the number 74. Director Hal had said it like a concession — *seventy-four people who can't stop asking questions* — and she had understood even then that the number was not stable, that it would move. That it was moving. She did not know how many of the seventy-four she had ever met. She suspected she would never know the whole count, which was perhaps the point, which was perhaps the safest way for it to be.
 
 She was threading a needle in a hurricane. She knew this. She had known it from the moment she had understood what the archive actually was: not a record of what had happened but a record of what had been permitted to survive. She was working inside that structure, using its own tools, its own notation, its own authentication systems. She was making a thing inside the thing that had tried to erase her, and the thing that had tried to erase her was holding it now, unknowingly, in its own body.
 
